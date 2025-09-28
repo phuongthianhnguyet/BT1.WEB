@@ -8,3 +8,6 @@ TẠO SOLUTION GỒM CÁC PROJECT SAU:
 
 # Bài Làm.
 
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/134f83a2-3404-429b-82bd-bb73e29eeace" />
+
+
