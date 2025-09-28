@@ -8,6 +8,18 @@ TẠO SOLUTION GỒM CÁC PROJECT SAU:
 
 # Bài Làm.
 
-<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/134f83a2-3404-429b-82bd-bb73e29eeace" />
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/a57c9bf5-1818-470f-bea6-ce70aaa60ae5" />
 
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/8306095f-d362-49fe-8492-b1be261639d4" />
 
+<img width="960" height="540" alt="image" src="https://github.com/user-attachments/assets/516afda6-dc57-4106-a627-7125ab796f76" />
+
+<img width="960" height="540" alt="image" src="https://github.com/user-attachments/assets/d1019531-97cd-4d76-a367-ba9d43db45f1" />
+
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/2e00f8e3-d20e-402c-b567-617b348256f3" />
+
+<img width="1906" height="1080" alt="image" src="https://github.com/user-attachments/assets/aa354459-c189-46c8-b409-2cc051ac8f92" />
+
+<img width="1915" height="1074" alt="image" src="https://github.com/user-attachments/assets/bfa96dcb-03ea-41dd-8c98-d147db68a5e0" />
+
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/c690db94-9034-4740-a9ae-f323825d29e8" />
