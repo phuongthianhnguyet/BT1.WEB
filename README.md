@@ -23,3 +23,6 @@ TẠO SOLUTION GỒM CÁC PROJECT SAU:
 <img width="1915" height="1074" alt="image" src="https://github.com/user-attachments/assets/bfa96dcb-03ea-41dd-8c98-d147db68a5e0" />
 
 <img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/c690db94-9034-4740-a9ae-f323825d29e8" />
+
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/ad86cd12-6125-48ca-861d-b9fa546b0906" />
+
